@@ -1,0 +1,1 @@
+I spent today working watching videos and working on codecademy so I don’t have anything new to show but I’m getting there!
